@@ -27,3 +27,6 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 3. Snedden, C. (2015). Understanding Kashmir and Kashmiris. Hurst. 
 
 4. Saraf, Y. M. (2015). Kashmiris fight for freedom. National Institute of Kashmir Studies (NIKS).   
+
+5. The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz, New Delhi, Kashmir Publishing Company, 1954
+
