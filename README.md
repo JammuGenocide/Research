@@ -30,3 +30,5 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 
 5. The History Of Struggle For Freedom In Kashmir, Prem Nath Bazaz, New Delhi, Kashmir Publishing Company, 1954
 
+6. Kashmir: Exposing the Myth behind the Narrative, Khalid Bashir June 23, 2017
+
