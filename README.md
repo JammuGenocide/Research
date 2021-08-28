@@ -18,6 +18,9 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 7. UNIVERSITY OF SOUTHAMPTONSCHOOL OF HUMANITIES, Centre for Imperial and Post-Colonial StudiesPartition and Its Aftermath: Violence, Migration and theRole  of  Refugees  in  the  Socio-Economic  Development  ofGujranwala and Sialkot Cities, 1947-1961. 
 
 8. The Making of Modern Kashmir: Sheikh Abdullah and the Politics of the State, Altaf Hussain Para
+
+9. Partition and Legacies of Violence: A Study of Kashmir Conflict, Inamul Haq
+
 # Books
 
 1. Refugees and the End of Empire: Imperial Collapse and Forced Migration in the Twentieth Century. United Kingdom, Palgrave Macmillan UK, 2011. Chapter Escape from violence: The 1947 Partition of India and the migration of Kashmiri Muslim Refugees Muslim. https://www.google.com/books/edition/Refugees_and_the_End_of_Empire/8cCHDAAAQBAJ?hl=en&gbpv=1
