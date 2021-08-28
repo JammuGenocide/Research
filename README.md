@@ -32,3 +32,5 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 
 6. Kashmir: Exposing the Myth behind the Narrative, Khalid Bashir June 23, 2017
 
+7. Kashmir Conflict And Muslims Of Jammu, Gulshan Books 2015
+
